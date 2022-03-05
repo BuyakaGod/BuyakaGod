@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BuyakaGod
+- 👀 I’m interested in lear anything about codind
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on something special
+- 📫 How to reach me buyakagod@zoho.com
